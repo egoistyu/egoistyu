@@ -1,4 +1,4 @@
 ado ado ado
-qm leu é abobado
+qm leu é viado
 !!!!!!!!
 :PPPPPPPPPPPPPPPPP
